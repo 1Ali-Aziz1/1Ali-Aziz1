@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @1Ali-Aziz1
 - 👀 I’m interested in Money🤑🤑🤑🤑🤑
-- 🌱 I’m currently learning React.js and React native
+- 🌱 I’m currently learning Java and C#
 - 💞️ I’m looking to collaborate on my project
 - 📫 How to reach me on success
 
