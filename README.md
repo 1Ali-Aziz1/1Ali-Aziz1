@@ -2,4 +2,4 @@
 
 If I ever reversed, it would be the death of me first.🔥🔥🔥
 
-I am mostly nice and also have darkside.
+I am mostly.
